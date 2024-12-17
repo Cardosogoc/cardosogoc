@@ -15,4 +15,4 @@
 </div>
 <br/>
 
-# Em uma eterna competição comigo mesmo! ⚡🦆
+# Melhor que ontem e não tão bom quanto amanhâ! ⚡🦆
