@@ -17,4 +17,4 @@
 </div>
 <br/>
 
-# Melhor que ontem e não tão bom quanto amanhã! ⚡🦆
+#  Repetição com correção até a exaustão leva a perfeição. ⚡🦆
